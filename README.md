@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-<meta http-equiv="refresh" content="10; URL=https://magicianguideours.com/f3m8gpax7?key=c71088c5856f260fe03d149138d412f4" />
+<meta http-equiv="refresh" content="7; URL=https://magicianguideours.com/f3m8gpax7?key=c71088c5856f260fe03d149138d412f4" />
 </head>
 <body>
 
